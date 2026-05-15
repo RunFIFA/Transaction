@@ -1,2 +1,2 @@
 # My New Transaction
-# Where there is a will, there is a way.
+# 乘风破浪会有时，直挂云帆济沧海
